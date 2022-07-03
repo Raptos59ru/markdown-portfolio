@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Лилуш британский повеливает](https://sun9-80.userapi.com/c9928/u79153822/-6/z_63ebd556.jpg)
